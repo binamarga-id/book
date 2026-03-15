@@ -1,0 +1,2 @@
+# book
+KUNCI EMAS HARI INI
